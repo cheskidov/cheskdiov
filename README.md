@@ -1,4 +1,4 @@
-### Hi My name is < Pavel />  👋
+### Hi! My name is < Pavel />  👋
 
 ## About me
 
